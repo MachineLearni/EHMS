@@ -1,0 +1,2 @@
+<b><i>shalini</b></i> said:<br />hey<br /><br /><b><i>shalini</b></i> said:<br />good staffs working!
+<br /><br /><b><i>Pavithra</b></i> said:<br />Got my vaccination done as per the scheduled day.Happy with the service!!<br /><br />
